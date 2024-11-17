@@ -25,8 +25,8 @@ Looking to collaborate on:
 📫 How to Reach Me:
 
     Email: auke31@gmail.com
-    LinkedIn: Daniel Linhares (Insert your LinkedIn URL here)
-    Portfolio: (Link to your portfolio if available)
+    LinkedIn: Daniel Linhares https://www.linkedin.com/in/daniel-linhares-87162814/
+    Portfolio: Loading...
 
 ⚡ Fun Fact:
 
